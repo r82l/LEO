@@ -1,6 +1,10 @@
 # LEO
-ماب
+ماب تويكسك
 https://www.mediafire.com/file/bvbtq083xr43leo/
+
+الفروسيه
+
+https://cdn.discordapp.com/attachments/1367921185467400222/1389217784638083134/alfrusiya.zip?ex=68acfca2&is=68abab22&hm=0aee786da51d9e4e9196fb7ff18f64ecf86c22c5a9ead58a841fff9d7ef286f2&
 
 سيارات+ مابات
 
