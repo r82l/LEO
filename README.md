@@ -29,3 +29,7 @@ https://modsfire.com/Y5j7R8n54L7W0gF
 ربع
 
 https://modsfire.com/E52Uczqa2Hm7BGW
+
+كامري 2025
+
+https://www.mediafire.com/file/6fbnqokpbjbyxtl/Camry_2025_KHwylD.zip/file?dkey=bdb34lsy7zr&r=1807
