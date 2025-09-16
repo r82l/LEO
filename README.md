@@ -37,3 +37,7 @@ https://www.mediafire.com/file/6fbnqokpbjbyxtl/Camry_2025_KHwylD.zip/file?dkey=b
 فورد فيكتوريا 
 
 https://modsfire.com/fd2N29IuLRwQg8f
+
+النترا 21
+
+https://www.mediafire.com/file/mi5sc7mpmecwe9d/acmelantra.rar/file
