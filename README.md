@@ -41,3 +41,8 @@ https://modsfire.com/fd2N29IuLRwQg8f
 النترا 21
 
 https://www.mediafire.com/file/mi5sc7mpmecwe9d/acmelantra.rar/file
+
+سوناتا 2024
+
+
+https://cdn.discordapp.com/attachments/1367921172238307572/1382750612302594168/Hyundai_Sonata_2024_1.1.zip?ex=68c988dc&is=68c8375c&hm=28e8cd4918ccc9763e2c95ade421ea54f39df5a9bf447c8e81ba8285d2c67d39&
